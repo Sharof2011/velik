@@ -1,0 +1,2 @@
+# velik
+naga aynan velik
